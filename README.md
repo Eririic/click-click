@@ -1,2 +1,2 @@
-![456708025_437861905934848_2652139968644681460_n](https://github.com/user-attachments/assets/207bbead-be59-4f82-a736-7b6832b233b1)
+![[456708025_437861905934848_2652139968644681460_n](https://media.discordapp.net/attachments/1092801237705044088/1299567856127574087/SPOILER_Untitled552_20241026105516.png?ex=67283861&is=6726e6e1&hm=1209b3dd47725eaf372595344c00f123663cb69a69dd5378fe7afb8c9edd5b4d&=&format=webp&quality=lossless&width=532&height=644)](https://github.com/user-attachments/assets/207bbead-be59-4f82-a736-7b6832b233b1)
 # -
